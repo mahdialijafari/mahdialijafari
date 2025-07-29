@@ -65,7 +65,7 @@
 
 - 📧 Email: **sedmahdialijafari@gmail.com**  
 - 📱 Phone: **09359006534**  
-- 🌐 LinkedIn: *Coming Soon*  
+- 🌐 LinkedIn: *https://www.linkedin.com/in/mahdialijafari*  
 - 🌍 Portfolio: *Coming Soon*  
 
 ---
